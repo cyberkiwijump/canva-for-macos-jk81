@@ -1,4 +1,4 @@
-# 
+# Enhance Canva for macOS with elite Canva for macOS Script | retouch-tools + collaboration-tools, the #1 script. Includes retouch-tools and collaboration-tools for a smoother and
 
 
 
